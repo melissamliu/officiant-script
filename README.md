@@ -1,4 +1,7 @@
 # officiant-script
+
+
+
 We’ve all gathered today to celebrate a turning point in both James Hong and Melissa Liu’s lives.  We’ve come to actively support their relationship and publicly witness their commitment to each other. Melissa and James have invited us to this special occasion because, collectively, we are a group of the most important people in their lives. Each of us has contributed in some way to the love they share for one another today.
 
 Many of you travelled long distances or cancelled other obligations in order to attend this ceremony. Melissa and James wanted me to thank you all for making it here today and to recognize how important each and every one of you are in their lives. They would also like to recognize all of those who couldn’t be here today as they are missed but not forgotten on this day of celebration.
